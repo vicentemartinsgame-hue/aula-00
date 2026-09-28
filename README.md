@@ -93,8 +93,8 @@ Atualmente estudando desenvolvimento web e construindo projetos para aprimorar m
 
 ## 📫 Contato
 
-* GitHub: https://github.com/FERNANDA-RODRIGUESC
-* E-mail: fernandarodriguescunha07@gmail.com
+* Instagram: volpato.vi
+
 
 ---
 
